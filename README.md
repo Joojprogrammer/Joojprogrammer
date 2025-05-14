@@ -5,5 +5,5 @@
 - 🤔 I’m looking for help with everything haha
 - 💬 Ask me about mordern physics
 - 📫 How to reach me: joaopedro04062001@hotmail.com or @jp.css
-- 😄 Pronouns: hi/His
+- 😄 Pronouns: Hi/His
 - ⚡ Fun fact: I spend a lot of time working out
